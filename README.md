@@ -2,5 +2,5 @@
 NSFW story series I'm making
 
 # Chapters
-### Chapter 1 -
+### Chapter 1 (bandstory.txt) -
 Nackt is introduced as well as Sophia, her playful friend. They both enjoy themselves, after Nackt's band period, and make a mess.
